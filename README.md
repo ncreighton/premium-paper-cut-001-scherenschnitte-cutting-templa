@@ -1,0 +1,2 @@
+# premium-paper-cut-001-scherenschnitte-cutting-templa
+You love Scherenschnitte, but your cutting patterns are scattered across folders, pins, and sketches—wasting time every time you start a new project.  The Scherenschnitte Cutting Template Library brings order to your paper cutting passion. It’s a Notion database designed specifically for scherenschnitte artists to catalog patterns, track progress,
